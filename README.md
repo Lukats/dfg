@@ -59,29 +59,28 @@ My career philosophy centers around continuous improvement, adaptability, and a 
 
 **Free Waldorf School Tbilisi**
 
-- \_Years Attended: 1999-2011
+- Years Attended: 1999-2011
 
 **Sulkhan Tsintsadze University of Music N16**
 
-- \_Years Attended: 2001-2007
+- Years Attended: 2001-2007
 
 **Free Waldorf School Salzburg**
 
-- \_Years Attended: 2010-2011
+- Years Attended: 2010-2011
 
 **Ilia State University**
 
 - _Bachelor's Degree in Business Administration and Tourism, German Studies_
-- \_Years Attended: 2011-2015
+- Years Attended: 2011-2015
 
 **Sport Management**
 
 - _Master's Degree_
-- \_Years Attended: 2015-2017
+- Years Attended: 2015-2017
+  **CES Graphic Design**
 
-\*\*CES Graphic Design -
-
-- \_Years Attended: 2021-2022
+- Years Attended: 2021-2022
 
 During my educational journey, I have had the privilege of attending diverse institutions that have shaped my academic and personal development. From a strong foundation in Business Administration and Tourism at Ilia State University to specialized studies in Sport Management and Graphic Design, I have cultivated a multidisciplinary skill set.
 
