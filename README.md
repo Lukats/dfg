@@ -53,8 +53,6 @@ I bring more than just technical skills to the table. My commitment to quick thi
 
 My career philosophy centers around continuous improvement, adaptability, and a results-driven mindset. I believe that combining technical expertise with strong personal attributes leads to successful outcomes and meaningful contributions in the world of software development.
 
-## Education
-
 ## Education:
 
 **Free Waldorf School Tbilisi**
