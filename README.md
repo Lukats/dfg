@@ -89,24 +89,6 @@ Each educational experience has contributed to my holistic understanding and app
 
 ## Languages:
 
-### Fluent:
-
-- **English:** Native proficiency
-
-### Professional Working Proficiency:
-
-- **German:** Business and Technical Communication
-
-### Conversational Proficiency:
-
-- **Russian:** Everyday Conversations
-
-### Basic Understanding:
-
-- **Georgian:** Basic Communication Skills
-
-## Languages:
-
 - **Georgian:** Native proficiency
 - **English:** Proficient
 - **German:** Proficient
