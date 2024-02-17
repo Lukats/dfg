@@ -78,6 +78,7 @@ My career philosophy centers around continuous improvement, adaptability, and a 
 
 - _Master's Degree_
 - Years Attended: 2015-2017
+
   **CES Graphic Design**
 
 - Years Attended: 2021-2022
